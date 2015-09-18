@@ -1,0 +1,5 @@
+- Greece
+- El Dorado to the Northwest
+- Shaka, Atilla neighbors, though not too close
+- Large Pangea Immortal Epic, Standard resources
+- 4 workable Gems, 1 cotton, 1 stone, 1-2 banana, 20+ river tiles
